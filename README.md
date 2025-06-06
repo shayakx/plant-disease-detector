@@ -1,0 +1,1 @@
+Hello I am Shayak Dutta Passionate BCA student diving deep into the world of coding, cybersecurity, and software development. Constantly learning, experimenting, and building projects to turn ideas into reality. Ready to hack through challenges and make tech work smarter, not harder. Always up for collaboration and leveling up my skills!
